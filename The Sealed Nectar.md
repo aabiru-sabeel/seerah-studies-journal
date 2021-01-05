@@ -222,3 +222,132 @@ Regarding the command to slaughter/sacrifice Ismaeel alayhi salaam. I've heard t
 
 # 21st Jumada al-Awwal 1442 / January 5, 2021
 ##### Pages 28 - 32
+
+### Topics covered
+    Arab Tribes - continued
+    Rule and Government among the Arabs
+
+### Notes
+
+##### Page 27-28
+
+On the tale of Ibrahim's, alayhi salaam, two visits in which Ismaeel, alayhi salaam, divorced his first wife and married the daughter of Mudad ibn 'Amr.
+
+Here it's mentioned that Ibrahim, alayhi salaam, asked Ismaeel's, alayhi salaam, wife:
+> to tell Ismael to change his doorstep.
+
+I've also seen, in another translation of the hadith, that Ismaeel, alayhi salaam, was asked to change the threshold of his house.
+
+There are a few hadith that come to mind regarding the wife:
+
+> It was narrated that from Abdullah bin Amr that :
+the Messenger of Allah said: “This world is but provisions, and there is no provision in this world better than a righteous wife.”
+Grade:	 Sahih (Darussalam)		
+Sunnah.com reference	 : Book 9, Hadith 11
+English reference	 : Vol. 3, Book 9, Hadith 1855
+Arabic reference	 : Book 9, Hadith 1928
+
+More importantly this one that many people have probably heard or passed on, given on the [abuaminaelias](https://abuaminaelias.com/dailyhadithonline/2013/04/16/nikah-half-deen/) website:
+
+> Anas ibn Malik reported: The Messenger of Allah, peace and blessings be upon him, said, “Whoever Allah provides with a righteous wife, Allah has assisted him in half of his religion. Let him fear Allah regarding the second half.”
+Source: al-Mu’jam al-Awsaṭ 992
+Grade: Sahih (authentic) according to Al-Suyuti
+
+From observations, I've noticed that men who have a patient and grateful wife tend to be more calm, trustworthy, honorable, etc. When someone has a wife who is unhappy, she will continuously nag at him which would, for lack of better words, ruin his life.
+
+> Narrated Abu Hurairah (RA):
+The Prophet (ﷺ) said: "He who believes in Allah and the last Day should not harm his neighbor; and take my advice regarding good treatment of women, for they were created from a rib. And indeed the most crooked part of the rib is its upper part. If you attempt to straighten it, you will break it, and if you leave it alone it will remain crooked. So, take my advice regarding good treatment of women." [Agreed upon; the wording is al-Bukhari's].
+Sunnah.com reference	 : Book 8, Hadith 58
+English reference	 : Book 8, Hadith 1025
+Arabic reference	 : Book 8, Hadith 1015
+
+I believe that Ibrahim, alayhi salaam, passing on the message to Ismaeel, alayhi salaam, to divorce his wife was also from Allah, subhanahu wa ta'ala. More specifically, Ibrahim, alayhi salaam, "wanting to see his wife and son again" at that time, arriving when Ismaeel, alayhi salaam, was not at home so he, Ibrahim alayhi salaam, spoke to Ismaeel's wife allowing him to discover her nature, and then passing on the message to divorce her.
+
+It could be that Ismaeel alayhi salaam was probably going through hard times and made du'a to Allah to ease things for him. In response Allah may have sent Ibrahim alayhi salaam to him with that message. Ismaeel alayhi salaam, being an obedient child, did as his father told him, and then the same thing happened a second time where Ibrahim, alayhi salaam, met Ismaeel's new wife who was patient and grateful.
+
+This reminds me of an incident I heard about where a man came to 'Umar, radhiallah anhu, regarding his disobedient son. The man complained that his son wouldn't listen to him and spoke back to him, etc. He was instructed to bring his son to 'Umar, radhiallah anhu.
+
+While speaking to the boy, 'Umar, radhiallah anhu, explained the rights of the father to the boy. The boy listened to everything carefully and afterwards asked "do I have any rights?" to which 'Umar, radhiallah anhu replied in the affirmative and explained three:
+1. Before getting married the boy's father should have chosen a good woman to marry, similarly his mother should have chosen a good man to marry.
+2. The boy should have been given a good name.
+3. The first thing the boy should have learned was the Qur'an.
+
+Upon hearing those the boy replied that the people around him say bad things about his mother, that she had a bad reputation. Second, he was given a name which meant something bad and he was made fun of for it. Third, he said he had never heard of a "Qur'an" until 'Umar, radhiallah anhu, spoke of it. 'Umar, radhiallah anhu, left the boy and went back to admonish the father instead, that how could he expect his son to behave with him and grant him his rights if he didn't grant his son his most basic rights.
+
+Anyway, the point was the first right of the child. Choosing a good spouse.
+
+##### Page 28
+
+I wonder if Ismaeel, alayhi salaam, ever went to Palestine to visit Ibrahim, alayhi salaam. Also by this point in time:
+
+> This time, father and son built Al-Ka'bah and raised its pillars
+
+I'm assuming Ishaaq, alayhi salaam, must have been born.
+
+I found information on the descendants of Ibrahim alayhi salaam from biblical sources, so they should be viewed with care: [History of Abraham](https://catholic-resources.org/Bible/History-Abraham.htm)
+
+##### Page 29
+
+> It was said that whenever Prophet Muhammad, sallallahu alayhi wa sallam, spoke of his ancestry, he would stop at 'Adnan and say: "Genealogists tell lies" and did not go farther than him.
+
+I've been misreading this line this whole time thinking it meant that genealogists didn't know who came after 'Adnan and so stopped here, and that the Prophet, sallallahu alayhi wa sallam, would himself go beyond them. If there's even a chance that this is an authentic hadith, I think then it would be best to avoid going beyond what the Prophet, sallallahu alayhi wa sallam, told us himself. It's interesting and you'd want to go further, but if we're wrong then wouldn't it be slander?
+
+##### Page 31
+
+> The Quraish remained completely disunited until Qusai bin Kilab managed to rally their ranks on honorable terms, attaching major prominence to their status and importance.
+
+I can understand this very well. "A house divided against itself can not stand"
+
+My family is going through a similar situation, they were entire divided and my father kept trying to rally them together "on honorable terms". Unfortunately there's nothing honorable about them so they refused. We're still disunited today, easy pickings for anyone and everyone else. I might come back to this topic at some later date.
+
+##### Page 32
+
+> When the sun of Islam rose ...
+
+This line still gives me an uneasy feeling. Not because of what it means, but because of ahadith such as this:
+
+> Narrated Mu'awiyah:
+I heard the Messenger of Allah (ﷺ) say: Migration will not end until repentance ends, and repentance will not end until the sun rises in the west.
+Grade:	 Sahih (Al-Albani)
+Reference	 : Sunan Abi Dawud 2479
+In-book reference	 : Book 15, Hadith 3
+English translation	 : Book 14, Hadith 2473
+
+Or
+
+> Narrated Abu Huraira:
+Allah's Messenger (ﷺ) said, "The hour will not be established till the sun rises from the West; and when it rises (from the West) and the people see it, they all will believe. And that is (the time) when no good will it do to a soul to believe then." Then he recited the whole Verse (6.158)
+Reference	 : Sahih al-Bukhari 4636
+In-book reference	 : Book 65, Hadith 158
+USC-MSA web (English) reference	 : Vol. 6, Book 60, Hadith 160
+
+> Are they awaiting the coming of the angels, or your Lord ˹Himself˺, or some of your Lord’s ˹major˺ signs? On the Day your Lord’s signs arrive, belief will not benefit those who did not believe earlier or those who did no good through their faith.1 Say, “Keep waiting! We too are waiting.”
+(6:158) translated by Dr. Mustafa Khattab
+
+So if we say something like "when the sun of Islam rose", it's implied that its metaphorical since there is no actual "sun of Islam", but rather Islam became a world power. Technically, the same phrase to someone from the "West" could be "when the sun rose in the east". Eventually the "sun of Islam set" when a shift in world powers happened and the "sun rose in the west". Based on current events it's possible that that sun of the west is setting as well. I'm not saying this with certainty, just that it's a possibility.
+
+> Rule in Yemen
+
+So I was a bit impatient earlier, if I waited a bit the information was given here regarding the People of Sheba.
+
+> Mention has been made of them as early as the 25th century B.C.
+
+The Dam of Ma'rib is what was mentioned earlier, the "Great Flood". (line 137)
+
+The period of time mentioned second
+
+> From 620 B.C to 115 B.C. ...
+
+Is it possible that this was during the time of King Suleiman, alayhi salaam?
+
+# 22nd Jumada al-Awwal 1442 / January 6, 2021
+##### Pages 33 - 37
+
+### Topics covered
+    Rule and Government among the Arabs
+    - Rule in Yemen
+    - Rulership in Heerah
+    - Rulership in Geographical Syria
+    - Rulership in Hijaz
+
+### Notes
