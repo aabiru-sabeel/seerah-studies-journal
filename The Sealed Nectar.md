@@ -351,3 +351,150 @@ Is it possible that this was during the time of King Suleiman, alayhi salaam?
     - Rulership in Hijaz
 
 ### Notes
+
+##### Page 32
+Under "Rule in Yemen"
+I think 2:
+> From 620 B.C. to 115 B.C. During this era, their nation was known by the name Sheba.
+
+Is the time during which Prophet Suleiman, alayhi salaam, ruled the Earth.
+
+##### Page 33
+
+> firstly, because of the Nabetean domain over norther Hijaz, secondly, because of the Roman superiority over the naval trade routes after the Roman conquest of Egypt, Syria, and northern Hijaz; and thirdly, because of the inter-tribal warfare.
+
+I don't know why but this makes me think of the state of Muslims today. I recently saw a video explaining self-discipline and self-control. They explained the difference between external and internal factors that affect how we behave. Linking it to their situation, the Nabetean's and the Roman's were external factors, that was out of their control. Inter-tribal warfare is literally internal, it's something they could have stopped at any moment if they only knew.
+
+I can kind of understand it though, some wounds cut too deep to just overlook. The wronged side wants justice, the other doesn't want to admit their guilt or that they did anything wrong.
+
+Earlier in the book, page 31, the Author wrote:
+> The Quraish remained completely disunited until Qusai bin Kilab managed to rally their ranks on honorable terms, attaching major prominence to their status and importance.
+
+I think that's one of the reasons we're told to keep good relations with our family. For example, how we should first give money, food, help, etc to our relatives that are in need before others. It keeps the family ties strong. There's a saying "a chain is no stronger than its weakest link". The family is a chain, and when we turn our backs on each other then it's only a matter of time until that entire chain falls apart.
+
+Based on what I've read earlier in the book, where it says "inter-tribal", meaning between different tribes, could still mean they were from the same family. The reason I say that is because earlier we saw that Ismaeel, alayhi salaam, had 12 sons "who ultimately formed twelve tribes" (page 28).
+
+It's kind of sad though, this literally repeats itself over and over again throughout history. People still don't learn.
+
+Going back to page 33:
+
+> ... the families of Qahtan remained disunited and scattered about.
+
+##### Page 34
+
+> ... he and his soldiers came to be known as the "Men of the Elephant"
+
+I always wondered who they were. So this happened around 575 C.E. That wasn't that long before the birth of the Prophet, sallallahu alayhi wa sallam. I've heard it was mentioned that it happened recently but I never really understood how recent it was.
+
+##### Page 36
+
+> ... the Persians were severely routed by the Arabs for the first time in history. They say this occured **very soon after the birth of Prophet Muhammad**, sallallahu alayhi wa sallam, eight months after Eyas bin Qubaisah's rise to power over Heerah.
+
+Now that is interesting. I think I mentioned earlier that, it was getting easier to see how the world readied itself for the Prophet's, sallallahu alayhi wa sallam, arrival. Regardless of whether this event occured before or after the birth of the Prophet, sallallahu alayhi wa sallam, the fact that it occurred at all during that time is enough.
+
+##### Page 37
+
+> Later on, their maternal grandfather, Mudad bin 'Amr Al-Jurhumi took over, thus transferring rulership over Makkah to the tribe of Jurhum.
+
+The first time I read through this part, I don't know why but I thought it said he, Mudad bun 'Amr, took control of Hijaz from the family of Ismaeel, alayhi salaam. Re-reading it now, I realize I was wrong the first time. It seemed like everything flowed naturally. I'm also kind of surprised that he was still alive. "Their maternal grandfather" meaning Ismaeel's, alayhi salaam, father-in-law. Ismaeel, alayhi salaam, died at the alleged age of 137. So how old was Mudad bin 'Amr at the time he took over?
+
+> Very little authority remined for Ismaeel's sons even though they held a sacred status since it was their father who built the Ka'bah.
+
+Now I'm not sure again. It could be possible that the Tribe of Jurhum (Jurhum the Second) was stronger and more capable of protecting as well as maintaining the Ka'bah. It could also be because all of the sons of Ismaeel, alayhi salaam, migrated away except for Nabet and Qidar. Looking back at pages 28 and 29:
+
+> The Nabeteans - sons of Nabet - established a flourishing civilization in the north of Hijaz. ...
+
+> Descendants of Qidar, the son of Ismael alayhi salaam, lived long in Makkah increasing in number, of them issued 'Adnan and his son Ma'ad, to whom 'Adnanian Arabs traced their ancestry.
+
+And now it's back to being confusing. So the descendants of Qidar remained in Makkah "increasing in number". Maybe they gave control of the Ka'bah to their maternal grandfather out of respect? Ah I know it doesn't matter, and it's not important to the Seerah of Prophet Muhammad sallallahu alayhi wa sallam, but I have this...uncomfortable desire to want to know why. The Tribe of Jurhum loved Ismaeel alayhi salaam. So it couldn't have been out of malice. I think the children of Qidar gave control over to the Tribe of Jurhum out of respect and that the Tribe of Jurhum would be better able to protect and maintain the city. Regardless of what it was, I **have** to move on past this point before I lose my mind on it.
+
+# 23rd Jumada al-Awwal 1442 / January 7, 2021
+##### Pages 38 - 42
+
+### Topics covered
+    Rulership in Hijaz - continued
+    The Reasons of the war
+
+### Notes
+
+##### Page 38
+
+> Ma'ad returned to Makkah to find none of the tribe of Jurhum except Jursham bin Jalhamah, whose daughter, Mu'anah, was given to Ma'ad as a wife. ...
+
+> ... the tribe of Jurhum began to treat visitors of the Ka'bah poorly and obtain by force its funds.
+
+Does "tribe of Jurhum" in the second paragraph mean the children of Jursham bin Jalhamah? Or did others return.
+
+And if it was just the children of Jursham bin Jalhamah, that would mean the brothers-in-law of Ma'ad bin 'Adnan.
+
+If the tribe of Jurhum was finished, as in only one person remained, how did the tribe of Jurhum regain control over Makkah? Unless it means no one else was there besides a few families. In which case it's possible that the others let the sons of Jurhum lead since they used to be the leaders in the past?
+
+Also:
+
+> began to treat visitors of the Ka'bah poorly ...
+
+i.e. pilgrims
+
+> ... and obtain by force its funds.
+
+So the tribe of Jurhum fell to being thugs. I guess that's what life is all about though.
+
+I remember reading somewhere in the Qur'an that Allah, subhanahu wa ta'ala, said He made two different peoples that they should fight against each other. Something like that at least. That if one of them prevailed and had their way they would eventually transgress. It wasn't mentioned who those people were, although I assume it's present in the commentary. Either way, it's like that here. The tribe of Jurhum started out as good people, but after 20+ centuries they saw themselves lowered to being lowly thugs.
+
+##### Page 39
+
+> ... 'Adnanides spread all over Najd and the sides of Bahrain and Iraq ...
+
+Is the Saud family related to them? It's been centuries, so maybe not.
+
+##### Page 40
+
+Did Christianity not reach this region? I think the Abyssinians were Christians, well...the "christians" were actually pagans I suppose.
+
+##### Page 41
+
+So this is what was meant earlier by "... managed to rally their ranks on honorable terms ..."
+Quraish banded together to take control of Makkah, and they had more right to it than the others because they were descendants of Ismaeel, alayhi salaam.
+
+> A significant achievement credited to Qusai was the establishment of An-Nadwah House ...
+
+That's interesting, so Quraish could stay united and since it was for the entire family I'd assume the poorest of Quraish would still have a voice.
+
+> 2. The War Standard
+
+Also interesting. So it means before this, anyone from the tribe was able to declare war on another tribe? It makes sense to do this too, I would assume that in the past if someone from the tribe was insulted they would start the fight and the rest of the tribe would get dragged into it in order to support their own. Similar to how alliances between nations drags entire countries into wars that aren't their own.
+
+In this way Qusai or his sons would be able to weigh the options and see if the war was necessary or could be resolved on other terms.
+
+##### Page 42
+
+> Qusai even imposed on Quraish annual land tax for food, paid at the season of pilgrimage.
+
+Land tax, as in property tax?
+
+I know this is before the Prophet, sallallahu alayhi wa sallam, so it doesn't mean everything Qusai did was right. I have to keep reminding myself that while reading this.
+
+> ... his death gave no rise to conflicts among his sons, but later it did among his grand children.
+
+Everything goes according to Allah's plan.
+
+> ... would have given rise to conflict and fighting among the whole tribe of Quraish, had it not been for a peace treaty.
+
+Whoever proposed that was smart. I was about to say "if they gave into fighting against each other..." but then remembered the Hadith:
+
+> Abu Hurairah (RAA) narrated that the Messenger of Allah (ﷺ) said:
+“A believer who is strong (and healthy) is better and dearer to Allah than the weak believer, but there is goodness in both of them. Be keen on what benefits you and seek help from Allah, and do not give up. If anything afflicts you do not say, ‘If I had done such and such things, such and such would have happened.’ But say, ‘Allah decrees and what He wills He does,’ for (the utterance) ‘If I had’ provides an opening for the deeds of the devil.” Related by Muslim.
+Bulugh al-Maram
+English reference	 : Book 16, Hadith 1569
+Arabic reference	 : Book 16, Hadith 1526
+
+# 24th Jumada al-Awwal 1442 / January 8, 2021
+##### Pages 43 - 47
+
+### Topics covered
+  Rulership in Hijaz - continued
+  Rulership in Pan-Arabia
+  The Political Situation
+  Religions of the Arabs
+
+### Notes
