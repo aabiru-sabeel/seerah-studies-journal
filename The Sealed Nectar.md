@@ -492,9 +492,77 @@ Arabic reference	 : Book 16, Hadith 1526
 ##### Pages 43 - 47
 
 ### Topics covered
-  Rulership in Hijaz - continued
-  Rulership in Pan-Arabia
-  The Political Situation
-  Religions of the Arabs
+    Rulership in Hijaz - continued
+    Rulership in Pan-Arabia
+    The Political Situation
+    Religions of the Arabs
+
+### Notes
+
+##### Page 43 - 44
+
+> Rivalry among cousins for rulership, however, often drove them to outdo one another in entertaining guests, affecting generosity, wisdom, and chivalry for the sole purpose of outranking their rivals, and gaining fame among people especially poets who were official spokesmen at the time.
+
+This is exactly what goes on today in elections at every level.
+Poets are versed in language, they can essentially bend reality to suit their purposes. They can make someone appear to be better than they are, and someone else worse than they are.
+During elections, the people running for some office typically change the way they behave with others to appear much better than they actually are. I would always think I was above falling for a ruse like that but I still fall for it every time.
+
+Again, I suppose this is the natural order of things. Even if someone reforms the people, eventually they fall back into the same behavior.
+
+I found on wikipedia.org (the resources given are Paul L. Maier. "The Date of the Nativity and Chronology of Jesus", Jesus & the Rise of Early Christianity: A History of New Testament Times by Paul Barnett, The Cradle, the Cross, and the Crown: An Introduction to the New Testament by Andreas J. Köstenberger, L. Scott Kellum , Sanders (1993). "The Historical Figure of Jesus"), from the Israeeliat it's believed that 'Isa alayhi salaam died somewhere between the years 30 and 36 C.E.
+
+Although there were many prophets throughout history, 'Isa alayhi salaam was the last one we know of before Prophet Muhammad, sallallahu alayhi wa sallam. 'Isa alayhi salaam is said to have been born in Bethlehem, which "lies 10 kilometres south of the city of Jerusalem" (from whc.unesco.org).
+
+Regardless of the distance, that's about 600 years back in time.
+
+##### Page 45
+
+> ... 'Amr bin Luhai ... brought with him an idol (Hubal) which he placed in the middle of the Ka'bah and summoned people to worship it.
+
+I can't even...
+Imagine being the guy that brought idolatry into the Ka'bah. On the Day of Judgement when no one will be allowed to intercede on anyone elses behalf without Allah's permission. Imagine standing in front of Allah and having that deed in your book of records. Subhanallah.
+
+Another thing, normally I would say that I can't understand how or why people would accept worshipping an idol. Imagine someone bringing a statue today and telling people to do sajda in front of it.
+Unfortunately it is understandable. People worship a large variety of things today, if you confront them about it they would just say it's in good fun and they know it can't do anything for them or that it isn't real, etc. It's a repeat of history but for some reason in the present everyone thinks their case is different, that they're not doing the same thing. I suppose that's how Shaytaan works, he, ar-rajeem, helps us justify even the most ridiculous of things/behaviors.
+
+> 'Amr bin Luhai, with the help of a jinn companion who told him that the idols of Noah's folk ... were buried in Jeddah, dug them out and took them to Tihamah.
+
+This actually reminds me of something else. Witches and people who practice witchcraft, sorcery, magic, etc - paganism and worship of devils and demons - actually have specific Jinn they worship. It's funny if we think about it, imagine that, humans that Allah, subhanahu wa ta'ala, made superior to Jinn-kind bowing and prostrating before the lowly Jinn.
+
+Anyway, they have a list of Jinn they worship specifically - possibly old Jinn that are more powerful than the others of Jinn-kind - and no matter how much time has passed they still somehow managed to recover or retain that knowledge of theirs. I think Prophet Suleiman, alayhi salaam, destroyed their books and people, but it's still not entirely gone. Paganism and witchcraft are on the rise again today. It's currently the 1442nd year after Hijra, and we're seeing such a state of the world.
+
+##### Page 46
+
+> "Eat not (O believers) of that (meat) on which Allah's Name has not been pronounced (at the time of the slaughtering of the animal)." [6:121]
+
+I think it was in the book "Sword Against Black Magic & Evil Magicians" where the Author, Wahid Ibn Abdus-salaam Bali, said that "anything that isn't sacrificed in Allahs name was done for Shaytaan" or something similar to that. I agree with that statement. Niyah is in the heart, and if an action was not done for Allah, subhanahu wa ta'ala, then regardless of who or what the person said it was for they did it for Shaytaan. I also read elsewhere that if we realize we did something with the incorrect niyyah, we can repent and ask Allah to have it recorded with the correct niyyah instead.
+
+I think just the act of realization is a Mercy from Allah, subhanahu wa ta'ala. That He granted us the option of repenting and turning what would have been used against us to something that works for us.
+
+##### Page 48
+
+> It has been authentically reported from the Prophet sallallahu alayhi wa sallam that such superstitions were first invented by 'Amr bin Luhai.
+
+This is such a sad thing, not the statement but the fact that "such superstitions were first invented by 'Amr bin Luhai". The reason I say that is because that's exactly what I see happening around me today.
+People who openly, and shamelessly, admit to committing major sins - according to the scholars doing so takes such a person out of the fold of Islam - but those same exact people are the ones who are praised and looked up to by everyone else. They do things that help the community every now and then, but overall their actions have only harmed everyone beyond what they realize. They'v opened up our city and even our neighborhood to so many evils. They've done Shaytaan's work, yet everyone who claims to be a Muslim supports them. I guess as time goes by I'm slowly understanding the Prophet's, sallallahu alayhi wa sallam, words more and more:
+
+> Narrated Mujahid:
+`Abdullah bin `Umar said, "Allah's Messenger (ﷺ) took hold of my shoulder and said, 'Be in this world as if you were a stranger or a traveler." The sub-narrator added: Ibn `Umar used to say, "If you survive till the evening, do not expect to be alive in the morning, and if you survive till the morning, do not expect to be alive in the evening, and take from your health for your sickness, and (take) from your life for your death."
+Reference	 : Sahih al-Bukhari 6416
+In-book reference	 : Book 81, Hadith 5
+USC-MSA web (English) reference	 : Vol. 8, Book 76, Hadith 425
+
+It's like I'm a stranger in a strange land. That's not to say I'm a great Muslim or perfect in any way. Shaytaan only wants that I should put my guard down, then he strikes like the snake he is.
+Even so, I wish I could live in a community of proper Muslims. But things beyond my control led me. I followed the signs Allah gave me, and here I am.
+
+This part, seeing how someone ruined the people and communities before the Prophet Muhammad, sallallahu alayhi wa sallam, arrived somehow gives me hope. Maybe the answers I'm looking for really are hidden in the seerah.
+
+    Note: I accidentally went ahead of the daily reading.
+
+# 24th Jumada al-Awwal 1442 / January 8, 2021
+##### Pages 48 - 52
+
+### Topics covered
+    Religions of the Arabs - continued
 
 ### Notes
