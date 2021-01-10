@@ -559,10 +559,104 @@ This part, seeing how someone ruined the people and communities before the Proph
 
     Note: I accidentally went ahead of the daily reading.
 
-# 24th Jumada al-Awwal 1442 / January 8, 2021
+# 25th Jumada al-Awwal 1442 / January 9, 2021
 ##### Pages 48 - 52
 
 ### Topics covered
     Religions of the Arabs - continued
 
 ### Notes
+
+##### Page 48 - 49
+
+> The Arabs did all of this for their idols believing that such idols would bring them nearer to Allah, lead them to Him, and mediate with Him for their sake, to which effect, the Qur'an goes:
+>
+> "We worship them only that they may bring us near to Allah." [39:3]
+
+I've been looking for this information for such a long time. I remember hearing this a while back, I think Nouman Ali Khan was the one who spoke of it. The Arabs did believe in Allah, and all their other gods were considered minor gods that would intercede on their behalf, etc. Or so they claimed.
+
+Subhanallah, I only had to read the next part:
+
+> "And they worship besides Allah things that hurt them not, nor profit them, and they say: 'These are our intercessors with Allah'." [10:18]
+
+##### Page 49
+
+> Another divinatory tradition among the Arabs was casting of Azlam, featherless arrows which were of three kinds...
+
+I heard of it before but never knew the details of it. It reminds me of some methods of "divination" used today. In fact quite a few. I guess if we dismantle them they come down to the same thing. People might have argued that, since Allah can control everything in the Heavens and the Earth so He could give them the solution through the arrows. Making one fly better than the others.
+
+Similarly people could use that excuse for a bunch of other things, such as opening the Qur'an at a random location and reading a certain ayah.
+
+I suppose at the end of it all:
+> This was very much like gambling ...
+
+People can convince themselves to believe whatever they want to believe. And they can convince themselves in such a way that they would believe it with such conviction. People who are religious, people who aren't, people who convince themselves a lie they keep telling themselves is the truth, while the truth is a lie. Similarly, people who support such methods of divination would probably fight to the death to defend their tradition. Allah knows best what is in the hearts of banu Adam.
+
+> Moreoever, they used to have a deep conviction in the tidings of soothsayers, diviners and astrologers.
+
+Where to start...
+
+People who follow things like astrology, apparently, I found out, that some "Muslims" (only Muslim by name) are pushing a "halal" horoscope or something along those lines. Before getting into that, the reason I said "Muslims" implying they are not, and not simply Muslims, is because when confronted with the truth against their beliefs they did not submit to it and continue to support shirk.
+
+Anyway, one thing, I think, regarding horoscopes is that people claim it's a "science". That it isn't through a specific soothesayer. I think that's completely wrong. There is evidence from the Qur'an that celestial bodies have no power or control over anything. But aside from that, I think it originated from soothsayers who then taught it as a science. They wrote books on it and whatever else. Just like yesterday when I mentioned how the people who practice witchcraft still worship the same Jinns the people of Jahannam worshipped in the past.
+
+From page 49
+> Diviners claimed that they could uncover the unknown by means of a granted power,
+
+Definitely these people exist in Muslim societies today, they claim that Allah granted them some special power or knowledge. Like one guy who does ruqya by applying boiling oil to people using the heel of his foot. Or others who give our taweez or whatever else claiming they have some secret knowledge others don't.
+
+##### Page 49 - 50
+
+> while others boasted they could reveal the secrets through a cause-and-effect-inductive process that would lead to detecting a stolen commodity, location of a theft, a stray animal, and the like.
+
+It's painful to read this book. There are people who others go to regarding these matters. Those people then do "istikhara" and then claim to "detecting a stolen commodity, location of a theft, a stray animal, and the like".
+
+Istikhara is definitely something the Prophet, sallallahu alayhi wa sallam, taught to the Sahaba, radhiallah anhum. The du'a was taught to them the same way they were taught the Qur'an:
+
+> Narrated Jabir bin `Abdullah:
+As-Salami: **Allah's Messenger (ﷺ) used to teach his companions to perform the prayer of Istikhara for each and every matter just as he used to teach them the Suras from the Qur'an** He used to say, "If anyone of you intends to do some thing, he should offer a two rak`at prayer other than the compulsory prayers, and after finishing it, he should say: O Allah! I consult You, for You have all knowledge, and appeal to You to support me with Your Power and ask for Your Bounty, for You are able to do things while I am not, and You know while I do not; and You are the Knower of the Unseen. O Allah If You know It this matter (name your matter) is good for me both at present and in the future, (or in my religion), in my this life and in the Hereafter, then fulfill it for me and make it easy for me, and then bestow Your Blessings on me in that matter. O Allah! If You know that this matter is not good for me in my religion, in my this life and in my coming Hereafter (or at present or in the future), then divert me from it and choose for me what is good wherever it may be, and make me be pleased with it." (See Hadith No. 391, Vol. 8)
+Reference	 : Sahih al-Bukhari 7390
+In-book reference	 : Book 97, Hadith 19
+USC-MSA web (English) reference	 : Vol. 9, Book 93, Hadith 487
+
+somewhere along the way people forgot entirely how to do it and what its purpose was. I remember while I was at a certain masjid, a man came to the masjid **after** the prayer was over. He saw me standing there so he asked me where the imam or other "Maulvis" (word he used) were so he could get Istikhara done. I initially told him I didn't know anyone at the masjid (it was my first time praying there), and that he could go inside and check.
+
+I added that "you should pray istikhara on your own", explained what I meant and why. He still went on in.
+
+People are lazy, they just want someone to give them the answers or solution to their problem without actually working for it.
+
+I suppose I can see the allure of divination. Like in video games, having a save point is easier on us mentally since we know if we make a mistake we can always go back to before we messed up. Real life isn't the same, we have to live with our mistakes. Similarly, life is easier when we "know the future". It's not without reason that people have a fear of the unknown that holds them back in life.
+
+Usually what happens with that istikhara, the false istikhara that that person was going for, they explain their dilemma to someone such as "I don't know if I should do such and such thing", or "I lost such and such thing and don't know where to find it", "Someone stole such and such thing from me..." etc. The person doing the Istikhara tells them to come back after a day or so, and when they do they tell them "you should/shouldn't do such and such thing, it will/won't be good for you", "go to such and such location and you'll find it there", "that person sold your item to such and such person and now it's in such and such city/country". Things like that. I'll admit, there was a time where I started believing it was ok Islamically. Alhamdulillah Allah guided me to the truth before it was too late.
+
+> The belief in omens for telling future events was of course, common among the Arabians. Some days, months, and particular animals were regarded as ominous...
+... Superstition was widespread...
+
+It's like I'm reading a book describing present-day Pakistan.
+
+##### Page 51 - 52
+
+Present-day, I haven't heard or seen people doing the things mentioned in these pages but the spirit of it is alive and well today. Innovations based on what people consider to be piety and pious behavior.
+
+For example:
+> When the Makkans were in the sacred state of pilgrimage, they would not enter their houses through the doors but through holes they used to dig in the back walls. They used to regard such behavior as deeds of piety and god-fearing.
+
+One thing I can think of is how people openly admit/reveal their sins in the public space when Allah clearly veiled it from other people beforehand. They consider that to be more pious and god-fearing than to sin in private and be on your best behaviour in the public space. In fact, the people go so far as to claim that hiding your sins from others (which Allah had veiled) and begaving properly in the public space is hypocrisy. They can not grasp the idea behind it. If Allah veiled your sins and you reveal it to others it comes under showing courage against Allah. If it was for a major sin then it amounts to kufr.
+
+People say something is a major sin when others do it, but for themselves it's always minor.
+
+I remember sitting in a gathering where one person, for no reason whatsoever, claimed that he skipped a day of fasting in Ramadan - it really was not central to the story and he could have avoided telling others about it entirely. I remember he added "you shouldn't lie about these things" and nodded, everyone else agreed with him and brushed it off as if it were nothing.
+
+> Such was the religious life in Arabia, full of polytheism, idolatry, and superstition.
+
+> When they refused, he ordered that a pit of fire be dug and all the Christians be dropped to burn therein.
+
+# 26th Jumada al-Awwal 1442 / January 10, 2021
+##### Pages 53 - 57
+
+### Topics covered
+
+
+### Notes
+
+##### Page
