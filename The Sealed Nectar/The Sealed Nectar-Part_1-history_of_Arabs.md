@@ -1,20 +1,3 @@
-### Book Information:
-
-#### Title
-    The Sealed Nectar
-    (Ar-Raheequl Makhtum)
-    Biography of the Noble Prophet
-
-#### Author
-    Safiur-Rahman Al-Mubarakpuri
-    Islamic University Al-Madinah Al-Munawwarah
-
-#### Published by
-    Darussalam Publishers
-
-#### Edition
-    Revised Edition: October, 2015
-
 # 20th Jumada al-Awwal 1442 / January 4, 2021
 ##### Pages 23 - 27
 
@@ -651,12 +634,252 @@ I remember sitting in a gathering where one person, for no reason whatsoever, cl
 
 > When they refused, he ordered that a pit of fire be dug and all the Christians be dropped to burn therein.
 
-# 26th Jumada al-Awwal 1442 / January 10, 2021
+# 26 Jumada al-Awwal 1442 / January 10, 2021
 ##### Pages 53 - 57
 
 ### Topics covered
-
+    Religions of the Arabs - continued
+    - The Religious Situation
+    Aspects of Pre-Islamic Arabian Society
+    - Social Life of the Arabs
 
 ### Notes
 
-##### Page
+##### Page 53
+
+> It was as retaliation for the injustice of Dhu Nawas.
+
+Where he burned the Christians in a ditch.
+
+> They even built a church and called it Yemeni al-Ka'bah with the aim of directing the Arab pilgrimage caravans towards Yemen, and then made an attempt to demolish the Sacred House in Makkah.
+> Allah the Almighty however punished them and made an example of them - here and in the hereafter.
+
+I wonder if the "Yemeni al-Ka'bah" still stands today or if it was destroyed. Also, this is way after the People of the Elephant right? I don't think I heard of this incident before. How were they destroyed?
+
+> Magianism was also popular among the Arabs living in the region of Persia, Iraq, Bahrain, Al-Ahsa' and some areas on the Arabian Gulf coast.
+
+I've heard that they still live in the Northern regions of Iran, but are a secluded community. They don't share any information with outsiders in order to protect their religion.
+
+That reminds me of soemthing else though. I remember a while back, reading that the Prophet, sallallahu alayhi wa sallam, warned the Muslims not to let the Qur'an fall into the hands of their enemies because "they'll use it to argue against you". I don't remember where I read that or if it's authentic. That also reminds me of how non-Muslims kept requesting the ancient manuscripts of the Qur'an to "study" it. We know the history of the Qur'an and every step has been recorded/saved. I'm glad they aren't allowed to touch them.
+
+> As for Sabianism...
+
+I think Sabians were also monotheistic, and that Magians were pagans.
+
+From Earlier
+> Magianism ... living in the region of Persia ...
+
+One of the languages that **was** spoken in Pakistan was Farsi - i.e. Persian. Magians,
+
+A few things come to mind:
+1. There was a lot of paganism in Persia
+2. One of their religions (I assume there are others but don't know enough about it) was Magianism as mentiond earlier.
+
+> Majuus was originally a term meaning Zoroastrians
+
+The Magians were Zoroastrians. Magianism = Zoroastrianism.
+
+> Zoroastrianism or Mazdayasna is one of the world's oldest continuously practiced religions. It is a multi-faceted faith centered on a dualistic cosmology of good and evil and an eschatology predicting the ultimate conquest of evil with theological elements of henotheism, monotheism/monism, and polytheism.
+
+- From Wikipedia where the following are referenced:
+a - "Is Zoroastrianism Dualistic or Monotheistic" by Boyd, James W
+b - "The Flawed Application of Monotheism Towards Zoroastrianism" by Vazquez, Pablo
+c - "Monotheism the Zoroastrian Way" by Hintze, Almut
+d - "Introduction to Zoroastrianism" by Skjaervo, Prods Oktor
+
+3. In that religion, they worship a god named "Mithra". To be honest, their religion sounds like it may be linked to other pagan religions such as what the ancient egyptians worshipped, what the norse worshipped, what the greeks and romans worshipped, and even the false pagan christianity as there are crucial overlapping elements. Such as "Mithra" being related to "mehr" meaning "Sun".
+
+The reason these came to mind is, many of the names given to Muslim children in Pakistan (I don't know about other countries) are from the Persian language - or of Persian origin - and typically they related to these pagan gods such as Mithra, or other pagan gods.
+One of the names that's very common here is "Mehran" which according to wikipedia.org:
+
+> Mehran (Persian: مهران‎) is derived from the term mehr (English: sun), relating to Mithra, an ancient Persian deity.
+
+##### Page 54
+
+> Judaism turned into repulsive hypocrisy along with the control of power. Rabbis turned into lords to the exclusion of the Lord. The sole target became the gaining of wealth and power even if it was at the risk of losing their religion, or the emergence of atheism and disbelief.
+
+There are Muslims following in these same footsteps today as well. Such as those who claim that Islam should be "kept in the home" and have nothing to do with government and politics. They can leave Islam without ever claiming to just as the people before us did, but they can not change the truth. They fool nobody but themselves.
+
+##### Aspects of Pre-Islamic Arabian Society
+
+##### Pages 55 - 56
+
+I'm kind of embarassed to address the issues presented there, I have not heard of these in the past and have not heard of people doing entirely the same thing in the present. There are **some** overlaps though.
+
+###### Pages 57 - 58
+> The story about Sa'd bin Abi Waqqas, radhiallah anhu, and Abd bin Zama'ah disputing over Abdur-Rahman bin Zama'ah, the son of Umm Zama'ah is well known.
+
+It wasn't known to me, found it on [ahadith.co.uk](https://ahadith.co.uk/chapter.php?page=17&cid=167&rows=10)
+
+> Hadith No: 2004
+Narrated/Authority of Aishah
+Ibn Zamah and Sa'd (Ibn Abu Waqqas) referred a dispute to the Prophet (saw) concerning the son of Zamah's slave woman. Sa'd said : " O Messenger of Allah (saw) my brother (Utbah bin Abu Waqqas) left instructions in his will that when I come to Makkah, I should look for the son of the slave woman of Zamah and take him into my care." Abd bin Zam’ah said: "He is my brother and the son of the slave woman of my father; he was born on my father's bed." The Prophet (saw) ffi saw that he resembled 'Utbah, and said: "He belongs to you, O Abd bin Zamah. The child is for the bed. Observe Hijab before him, O Saudah." (sahih)
+
+No one follows this today. I remember hearing that some scholars ruled that using DNA tests was not allowed. Many Muslims (that I knew personally, there may have been others that did not, Allahu a'alam) got angry about that and joked about it.
+
+I was one of them. But I think I understand why they decided as such.
+
+# 27 Jumada al-Awwal 1442 / January 11, 2021
+##### Pages 58 - 62
+
+### Topics covered
+    - Social Life of the Arabs - continued
+    - The Economic Situation
+    - Ethics
+
+### Notes
+
+##### Page 58
+
+> We should not think, however, that the act of killing infants was commonplace and widespread, simply because of the great need they had for sons to fight with them against their enemies.
+
+I used to think it **was** widespread, but I understand it. So it was just a disease they had where they were ashamed of it, and some would take it far enough to kill them.
+
+##### Page 59
+
+There's a lot in these pages which links to current events. To be honest I think everything I could have said could simply be summed up with "we are back in the Jahiliyyah".
+
+> The woman was a marketable commodity and regarded as a piece of inanimate property.
+
+Many people ascribe that sentiment to Islam, it's sad that they've been made to dislike or even hate the medicine for their disease.
+
+##### The Economic Situation
+
+##### Page 60
+
+Subhanallah, I keep saying "that's just like today" over and over again but I had to point this one out.
+
+> Arabia was the farthest of lands from industry...
+> ... yarn spinning ... this practice was continually threatened by wars. On the whole, poverty, hunger and insufficient clothing were the prevailing economic features in Arabia.
+
+I don't know about other countries, to be honest I don't even know about my own country as well as I should. I know that the economic situation in Pakistan is not very good. They have a lot of natural resources that go wasted or stolen (corrupt politicians sell mining privelages to other nations for self gain). The people, for the longest time, have had issues with "poverty, hunger, and insufficient clothing".
+
+Although, I suppose there is an air of change. Most of the people, even the poorest, have become extremely materialistic. To them Islamic knowledge is a great thing to have and they do respect it to some degree, but rather than sit with someone who knows about Islam they would rather chase after people who have nice cars, big houses, fashionable clothes, etc.
+
+One thing I haven't heard of so far is two-facedness of the people. I think the reason is because the Arabs at that time were proud and would not shy away from a fight. Whereas the people in Pakistan are mostly cowardly and attempt to avoid conflict wherever possible. It doesn't stop them from doing the wrong things, but they try to avoid fighting.
+
+So if two people were fighting, a third person may meet both happily and bad-mouth the other in their presence. There is a person who wronged me and my family and I hate them very much so much so I will not sit with them or in their gatherings. I dislike even looking at them. I refused to eat food they presented before me in a certain situation, when I brought it up a third party who had no idea about my side of the story laughed about it. These people were from Jamaat-e-Islami. I didn't mind it at the time, and I did meet the man. But it's something my mind keeps going back to. Why did he laugh like that? Was it amusing? Did he hear one side to the story and assume I was a fool or something?
+
+I know these suspicions are from Shaytaan, it could be that person just doesn't know in which case I will confront him on it if I ever meet him again.
+
+Shaykh Bakr Abu Zayd said, in his book "The Etiquettes of Seeking Knowledge", that a student should not sit with the enemies of his teacher. I would extend that to others as well. If two people are fighting, as Muslims we should try to understand the situation and discover who is actually in the wrong through the light of the Shariah. Then we can aid the one who is right by helping them, and aid the one who is wrong by stopping them. That is the true Islam in my eyes. Instead what the people here do is, if they find two people who are fighting they go to each and tell them things such as "forgive them", regardless of who was right or wrong. In many cases they acknowledge that the other person is wrong, even if their crime was punishable by Islamic law, and still have the audacity to tell the person who was wronged to "forgive them and move on". They are enablers. They hide behind a veil of lies...subhanallah. I think that's what that ayah meant regarding the hypocrites. That when you confront them about what they do they say "we are only setting things right". They say that there is a great reward for the one who settles disputes between two Muslims, but I don't accept this at all. I suppose that's what it means to be a stranger.
+
+###### Ethics
+
+###### Page 60
+
+> 1. Hospitality
+
+It used to be the same in Pakistan, but slowly this is dying down. I think I understand why it's happening.
+
+In the past when a guest came over the entire family would sit with and talk to them. They would share stories and such.
+
+Now as more and more children are getting into computers, cellphones, and videogames with no restrictions - since the parents don't realize what exactly is happening - they are being constantly bombarded with dopamine "hits" from their system. Their personality and behavior is changing because of it. They are used to non-stop stimulation, so when they are away from these systems they get bored easily and, as are the symptoms of withdrawal, prone to irritability and aggression.
+
+When the children are taken away from their cellphones, for example, and made to sit with a guest they might not be as hospitable because they want to get back to what makes them feel good.
+
+Obviously, this is not the case with everyone, but I've observed this with many children who are given free access to such devices. In fact, I believe children should not be allowed to use such devices until they are given enough time for their brains to develop and they form good habits. The Western world gave age restriction for things such as alcohol and cigarettes (both of which are haraam) but refuse to do the same for worse things.
+
+In Pakistan, there is a wave of "digitization" occuring especially now thanks to this corona virus. I believed one of the sought after effects was to speed up the rate of consumption of digital media and goods. With time it seems like I was proven right.
+
+Is it any surprise that the people working at Silicon Valley don't let their children near such devices until they're older? Or that their schools use the traditional methods of teaching and learning, whereas most parents uneducated on such matters are attracted by schools with such systems (computers, laptops, tablets, projectors, smart boards, etc).
+
+I should mention that I do not deny the advantage such systems provide anymore, I used to think it's best to avoid them completely because of the negative effect they have on people and society as a whole. But I realise now there is a lot of benefit to them, I would never have been able to:
+1. Learn about Qur'an
+2. Learn about Hadith
+3. Find pdfs for various books that are not available to me
+4. Find a bookstore and order authentic texts on Islam
+
+We need to learn to manage these things before it's too late, if it isn't already.
+
+###### Page 61
+
+> 2. Keeping a covenant
+
+This is very rare today. I know there are some remote villages and tribes that would rather die than break a covenant, but it's very rare in major cities as far as I know. People take promises very lightly. The words are very light on the tongue. To be honest, I'm afraid that is one of the characteristics of hypocrisy that I may have as well.
+
+> 3. Sense of honor and denial of injustice
+
+Ah, I wish the people were like the pre-Islamic Arabs in this regard.
+
+> ... developed mainly from excess of courage and a keen sense of self-esteem.
+
+That is highly lacking today. Actually, I think it goes back to when the British oppressors had control over India (modern day India, Pakistan, and Bangladesh). They instilled this sort of...fear and cowardice in the people. After they left the inclination to servitude remained. I think that's why the people from the subcontinent still hold foreigners, especially from the West, in such high esteem.
+
+I remember reading that during those times, the "Maulvis" were the ones who would rally the people together in order to fight the British. Now it's used as a derogatory term, the Muslims with beards and who appear to be following the Sunnah are often avoided, and people advise each other against them.
+
+I have yet to find any strong person who is on the path of righteousness. What I've seen is, there is a lot of oppression. The people who Allah gave the power to stop it are the oppressors, something they will be questioned about on the Day when none can intercede on their behalf without Allah's permission. The people being oppressed are too afraid of the oppressors to do anything.
+
+The position of the oppressed and their reluctance to do anything is understandable but even so...they could still try. They definitely have the numbers. They're just broken. I'm also afraid that if they were to rally together and defeat their oppressors, they would come into power themselves and be just as, if not more, corrupt.
+
+I think...Allah set the stage for anyone to step in and fight the oppressors and guide the people to the truth. I remember a while back I was talking to the Imam at my local masjid. He told me that "if we get one person like 'Umar radhiallah anhu, there would be no kaffirs left".
+
+> 4. Firm will and determination
+
+I suppose this is in the people here, even the most corrupt ones that openly declare their major sins, making public what Allah subhanahu wa ta'ala had veiled.
+
+They will not give up every opportunity to do something good. They also do a lot of harm though, such as insulting or speaking harsh words to people who can do nothing for them, people "beneath" them economically or socially.
+
+> 5. Forbearance, perseverance and mildness
+
+These depend on who you ask. Some people lose all control and go straight for the kill. Others have an incredible level of patience.
+
+Unfortunately, in the first case, ever since people have had easy access to guns things have gotten worse. In the case of swords and bows in the past it would depend on the person's skill. That way those who were not as patient would have to think twice before getting into a fight. Mixed with cowardice, many people would avoid fighting entirely where possible. Guns, although they do require a certain level of skills, are easy to handle and use for even the weakest of people. Because of this reason, everyone that shouldn't have a gun has one and it only worsens their condition. Where they would not have fought before, now they pull out the gun and start shooting.
+
+I have heard of people who shoot while hiding behind a wall, or those who shoot and run away. Even still, these people do not fight in an honorable way.
+
+As for the people who are extremely patient, or known for their patience. People begin to take advantage of them knowing that they would not stand up to them or fight back.
+
+> 6. Pure and simple bedouin life
+
+I think this is a huge pass. I've seen people that live in tents made from plastics and tarps others have thrown away, they get (possibly steal) electricity from somewhere and have LED televisions set up among other things.
+
+###### Page 62
+
+> The most priceless ethics, next to covenant-keeping, were no doubt their sense of self-esteem and strong determination, two human qualities indispensable in combating evil and eliminating moral corruption on the one hand, and establishing a good and justice-oriented society, on the other.
+
+Both qualities people lack today, and I think I understand why.
+
+It's beaten out of them from a young age using fear. Fear they will get hurt, fear that the evil people among them will harm them, their family, their wealth, their property, etc.
+
+###### The Lineage and Family of Muhammad sallallahu alayhi wa sallam
+
+###### Page 63
+
+I suppose "The First" section of his, sallallahu alayhi wa sallam, is the one we can trust completely.
+
+> The second, subject to various disagreements ...
+
+> The third, with some parts definitely incorrect ...
+
+# 28 Jumada al-Awwal 1442 / January 12, 2021
+##### Pages 63 - 67
+
+### Topics covered
+  The Lineage and Family of Muhammad sallallahu alayhi wa sallam
+  - The Prophetic Family
+
+### Notes
+
+##### Page 65
+
+> The boy, however, abstained from going with him to Makkah until he took his mother's consent.
+
+Done out of respect for their elders. I remember hearing that the Prophet, sallallahu alayhi wa sallam, when asked about marrying Khadija, radhiallah anha, asked for permission from Abu Talib, out of respect, who was in charge of him, sallallahu alayhi wa sallam, at the time.
+
+> There in Makkah, people wondered at seeing Abdul-Muttalib, and they considered him the slave of Muttalib.
+
+So that's the origin of his name. The people called him Abdul-Muttalib even though his Uncle clarified the matter to them:
+
+> "He is my nephew, the son of my brother Hashim."
+
+TODO: Hopefully I can get back to this one day, but I want to look into the meanings of the names Hashim, Shaibah, and Muttalib.
+
+On the incident where:
+> ... Nawfal without right took hold of the duties of 'Abdul-Muttalib ...
+
+That reminds me a lot of the situation of many people I know including ourselves.
+
+> ... so the latter asked for help from the Quraish but they abstained from extending any sort of support to either of them.
+
+That sounds about right. The people have no one else to ask for help so the injustice is done without any issue.
