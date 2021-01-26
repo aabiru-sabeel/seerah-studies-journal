@@ -1,10 +1,12 @@
+# The Sealed Nectar - Part 1
+
 # 20th Jumada al-Awwal 1442 / January 4, 2021
 ##### Pages 23 - 27
 
 ### Topics covered
-    Location and Nature of Arab Tribes
-    Location of the Arabs
-    Arab Tribes
+    * Location and Nature of Arab Tribes
+    * Location of the Arabs
+    * Arab Tribes
 
 ### Notes
 
@@ -207,8 +209,8 @@ Regarding the command to slaughter/sacrifice Ismaeel alayhi salaam. I've heard t
 ##### Pages 28 - 32
 
 ### Topics covered
-    Arab Tribes - continued
-    Rule and Government among the Arabs
+    * Arab Tribes - continued
+    * Rule and Government among the Arabs
 
 ### Notes
 
@@ -327,7 +329,7 @@ Is it possible that this was during the time of King Suleiman, alayhi salaam?
 ##### Pages 33 - 37
 
 ### Topics covered
-    Rule and Government among the Arabs
+    * Rule and Government among the Arabs
     - Rule in Yemen
     - Rulership in Heerah
     - Rulership in Geographical Syria
@@ -395,8 +397,8 @@ And now it's back to being confusing. So the descendants of Qidar remained in Ma
 ##### Pages 38 - 42
 
 ### Topics covered
-    Rulership in Hijaz - continued
-    The Reasons of the war
+    - Rulership in Hijaz - continued
+    - The Reasons of the war
 
 ### Notes
 
@@ -475,10 +477,10 @@ Arabic reference	 : Book 16, Hadith 1526
 ##### Pages 43 - 47
 
 ### Topics covered
-    Rulership in Hijaz - continued
-    Rulership in Pan-Arabia
-    The Political Situation
-    Religions of the Arabs
+    - Rulership in Hijaz - continued
+    - Rulership in Pan-Arabia
+    - The Political Situation
+    - Religions of the Arabs
 
 ### Notes
 
@@ -546,7 +548,7 @@ This part, seeing how someone ruined the people and communities before the Proph
 ##### Pages 48 - 52
 
 ### Topics covered
-    Religions of the Arabs - continued
+    * Religions of the Arabs - continued
 
 ### Notes
 
@@ -638,9 +640,9 @@ I remember sitting in a gathering where one person, for no reason whatsoever, cl
 ##### Pages 53 - 57
 
 ### Topics covered
-    Religions of the Arabs - continued
+    * Religions of the Arabs - continued
     - The Religious Situation
-    Aspects of Pre-Islamic Arabian Society
+    * Aspects of Pre-Islamic Arabian Society
     - Social Life of the Arabs
 
 ### Notes
@@ -856,7 +858,7 @@ I suppose "The First" section of his, sallallahu alayhi wa sallam, is the one we
 ##### Pages 63 - 67
 
 ### Topics covered
-  The Lineage and Family of Muhammad sallallahu alayhi wa sallam
+  * The Lineage and Family of Muhammad sallallahu alayhi wa sallam
   - The Prophetic Family
 
 ### Notes
