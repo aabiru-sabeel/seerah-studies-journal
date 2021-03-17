@@ -15,11 +15,11 @@
 
 > "I am the offspring of the slaughtered two"
 
-this was the first time I heard of this or the story behind it - i.e. 'Abdullah about to be slaughtered. I know that their divination practices were agains Islam, but it's surprising to see how Allah's plan played out. That
+this was the first time I heard of this or the story behind it - i.e. 'Abdullah about to be slaughtered. I know that their divination practices were against Islam, but it's surprising to see how Allah's plan played out. That
 
-> This incident produced a change in he amount of blood money usually acepted in Arabia. It had been ten camels, but after this even it was increased to a hundred. Islam, later on, appoved of this.
+> This incident produced a change in the amount of blood money usually accepted in Arabia. It had been ten camels, but after this event it was increased to a hundred. Islam, later on, approved of this.
 
-Also, I had read through it entirely the first time but the story about the people of the Elephant was something else. A miracle on that scale occuring right before the birth of the Prophet, sallallahu alayhi wa sallam. Although I knew the story from Surah al-Fil and surah al-Quraish, knowing these additional pieces of information adds another dimension to it. Subhanallah. I wonder how many people were still alive at the time that had witnessed such an event, then after the revelation of Surah al-Fil still refused to accept the message of Islam.
+Also, I had read through it entirely the first time but the story about the people of the Elephant was something else. A miracle on that scale occurring right before the birth of the Prophet, sallallahu alayhi wa sallam. Although I knew the story from Surah al-Fil and surah al-Quraish, knowing these additional pieces of information adds another dimension to it. Subhanallah. I wonder how many people were still alive at the time that had witnessed such an event, then after the revelation of Surah al-Fil still refused to accept the message of Islam.
 
 Thinking of it a different way, I have never heard of any natural phenomenon where a flock of birds, ababeel:
 > These birds were very much like swallows and sparrows, each carrying three stones: one in its beak (it actually said "peak" but I assume that was a typing error), and two in its claws.
